@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sdka-ffff
+- 👀 I’m interested in software, security, and permaculture
+- 🌱 I’m currently learning to get paid
+- 💞️ I’m looking to collaborate on a profitable endeavor
+- 📫 sdka-ffff@[davidkaff.io](https://davidkaff.io)
