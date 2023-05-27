@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @sdka-ffff
+- 👋 Hi, I’m @sdka-ffff & [@kaff-oregonstate](https://github.com/kaff-oregonstate)
 - 👀 I’m interested in software, security, and permaculture
 - 📫 sdka-ffff@[davidkaff.io](https://davidkaff.io)
